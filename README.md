@@ -1,4 +1,8 @@
-### Hi there 👋
+### WELCOME TO MY UNIVERSE! 🌞
+
+Belisama is a solo female AI Artist and Storyteller. She creates digital works of art that are minted on the blockchain and available as NFTs.
+
+🌐 [belisama.art](https://www.belisama.art/)
 
 <!--
 **belisama/Belisama** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
