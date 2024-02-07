@@ -1,6 +1,6 @@
 ### WELCOME TO MY UNIVERSE! 🌞
 
-Belisama is a solo female Artist and Storyteller. She creates digital works of art that are minted on the blockchain and available as NFTs.
+Art and Stories · Collectible NFT
 
 🌐 [belisama.art](https://www.belisama.art/)
 
